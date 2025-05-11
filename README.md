@@ -1,1 +1,0 @@
-# Bacteriocin_database_ITMO_Final_qualifying_work
